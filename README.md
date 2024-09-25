@@ -6,8 +6,8 @@ Meu nome é RAFAEL BOMBANA PASA
 - Estou me desenvolvendo na liguagem JavaScript
 - utilizo esse espaço para a organização e compatilhamento dos meus projetos desenvolvidos
   
-###Você entra em contato comigo 📫 
+### Você entra em contato comigo 📫 
 
 RAFAEL.PASA@ESCOLA.PR.GOV.BR
 
-![](https://tenor.com/pt-BR/view/mikey_draken-gif)
+![](https://media1.tenor.com/m/bMfFKLzvnbMAAAAd/mikey_draken.gif)
