@@ -1,6 +1,6 @@
-### Boas vindas ao meu Perfil 🔥 
+### Boas vindas ao meu Perfil 🔥
 
-Meu nome é RAFAEL BOMBANA PASA 
+Meu nome é RAFAEL BOMBANA PASA 🤠.
 
 - Estou estudando na Alura;
 - Estou me desenvolvendo na liguagem JavaScript
