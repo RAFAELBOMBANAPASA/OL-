@@ -10,4 +10,4 @@ Meu nome é RAFAEL BOMBANA PASA
 
 RAFAEL.PASA@ESCOLA.PR.GOV.BR
 
-![](https://media1.tenor.com/m/LO5LF4ge6jgAAAAC/teq-ultimate-gohan-teen-gohan.gif](https://tenor.com/pt-BR/view/good-morning-gif-23641949)
+![](https://tenor.com/pt-BR/view/mikey_draken-gif-22503471)
